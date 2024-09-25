@@ -21,4 +21,5 @@ The Excel sheet has been enhanced with additional creativity, including more cha
 
 Download the Creative Excel Sheet
 
-Let me know if there's anything else you'd like to modify! ​
+SEPTEMBER 25 2024- 
+How to Make a Custom GPT for Anything: ChatGPT Creator Tutorial [https://www.youtube.com/watch?v=5c3VRE5_hhc]  ​
